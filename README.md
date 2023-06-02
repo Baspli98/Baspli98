@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Baspli98
 - 👀 I’m interested in Coding and Dogs
-- 🌱 I’m currently learning Coding ^^"
+- 🌱 I’m currently learning to code ^^"
